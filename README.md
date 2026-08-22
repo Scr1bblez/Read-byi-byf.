@@ -3,6 +3,8 @@ I am 3teen ! ! ! please don’t be weird with me.
 
 Uzi / vaggi fictkins strictly dni ! ! You will be blocked.  
 
+big multishipper drooolllsssss . . .
+
 I do not support darkshippers / proshippers,, please dni unless stated otherwise. ( which will be never ouuu shittings )
 
 I am usually busy doing something on pt so please w2i ! ! ! you’re free to c+h tho.  
