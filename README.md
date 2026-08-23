@@ -13,4 +13,4 @@ DNCOPY MY SKINS ! ! ! I am not inspired by anypony on this game and I learned th
 
 dw, md, tadc, and homestuck fans int smiles.
 
-GENUINELY DNI FEM JAX AND TOON X HANDLER SHIPPERS I HATE THEM SOMUCH I SWEAR TO GOD
+iwec fem jax,, pls and thanks smiles ( its genuinely just confusing 4 me and feels forced,, thats why frowns. . . i don’t intend this to be transphobic / transphobia. idc if people are fem jax around me i just won’t int and if they're oomf then i wouldn’t care either but still its just genuinely really confusing for me )
