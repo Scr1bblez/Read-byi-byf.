@@ -13,4 +13,4 @@ DNCOPY MY SKINS ! ! ! I am not inspired by anypony on this game and I learned th
 
 dw, md, tadc, and homestuck fans int smiles.
 
-iwec fem jax,, pls and thanks smiles ( its genuinely just confusing 4 me and feels forced,, thats why frowns. . . i don’t intend this to be transphobic / transphobia. idc if people are fem jax around me i just won’t int and if they're oomf then i wouldn’t care either but still its just genuinely really confusing for me. yes I know it was confirmed but still it feels wrong to me / just randomly added at the end just so people start loving jax again frownnnsss. . . )
+iwec fem jax (unless friends),, pls and thanks smiles ( ik its canon but big chance i’ll have problems calling jax a girl from neow on. . i’ll mostly ignore or hide for 15 mins. unless harassing which will cause yew to be hidden permanently and blocked on other apps / sites smiles )
