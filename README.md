@@ -12,3 +12,9 @@ I am usually busy doing something on pt so please w2i ! ! ! you’re free to c+h
 DNCOPY MY SKINS ! ! ! I am not inspired by anypony on this game and I learned the style myself,, dncopy them. 
 
 iwec fem jax (unless friends),, pls and thanks smiles ( ik its canon but big chance i’ll have problems calling jax a girl from neow on. . i’ll mostly ignore or hide for 15 mins. unless harassing which will cause yew to be hidden permanently and blocked on other apps / sites smiles )
+
+<details open>
+  <summary>Title</summary>
+  Surprise content that is already open!
+</details>
+
